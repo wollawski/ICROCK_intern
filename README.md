@@ -1,2 +1,0 @@
-# ICROCK_Intern
-
